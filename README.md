@@ -1,0 +1,4 @@
+- My names Anthony 
+- I live in California
+- Still have a ton to learn but excited for the journey
+- Can email at antearly925@gmail.com
